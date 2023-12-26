@@ -1,8 +1,4 @@
-# Ruvari
-
-Ruvari is a woman-owned, ethical jewelry maker that specializes in lab-grown diamonds. 
-
-Stay tuned to this site for an e-commerce store.
+Bookmark this page for an e-commerce store coming soon.
 
 
 
